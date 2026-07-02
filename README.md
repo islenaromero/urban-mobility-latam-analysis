@@ -196,7 +196,7 @@ GitHub:
 https://github.com/islenaromero
 
 LinkedIn:
-(Agregar enlace a tu perfil)
+www.linkedin.com/in/islena-romero-londoño
 
 ---
 
